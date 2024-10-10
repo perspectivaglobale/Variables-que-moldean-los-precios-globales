@@ -1,1 +1,6 @@
 # Variables-que-moldean-los-precios-globales
+La geopolítica del petróleo es un factor clave en la fluctuación de los precios del crudo a nivel global. Países productores como Arabia Saudita, Rusia y Estados Unidos influyen directamente en el mercado, ajustando la oferta a través de la OPEP, lo que impacta tanto a las economías locales como a las globales. Las decisiones no solo responden a necesidades económicas, sino también a intereses políticos que modifican las dinámicas energéticas.
+
+Conflictos en regiones clave como Oriente Medio agravan esta inestabilidad. La interrupción de la producción en países como Irak y Libia provoca fluctuaciones bruscas en los precios del petróleo, afectando la estabilidad de los mercados. Estos factores demuestran cómo la política y la economía global están intrínsecamente conectadas al mercado energético.
+
+A medida que el mundo avanza hacia fuentes de energía más limpias, la geopolítica del petróleo también se ve transformada. La transición energética obliga a los países productores a buscar alternativas para diversificar sus economías, enfrentándose a un futuro donde la demanda de crudo puede disminuir. Esta nueva realidad está generando cambios significativos en la relación entre las naciones y el mercado global.
